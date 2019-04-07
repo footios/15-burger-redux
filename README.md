@@ -41,4 +41,6 @@
 
 > Lectures 387 - 392
 
-Time (with repetitions) 320 hours in 2 1/2 (two and a half) months.
+Time for all sections (1 -21, with repetitions) 
+320 hours 
+in 2 1/2 (two and a half) months.
